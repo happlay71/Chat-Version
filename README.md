@@ -2,4 +2,4 @@
 
 ### 版本
 
-[**chat-1.0.1**](https://pan.baidu.com/s/1e0qEJwExaplwBTZNYbPXQA?pwd=af67  )
+[**chat-1.0.1**](https://www.123684.com/s/cqx7Td-YIVMd?af67 )
